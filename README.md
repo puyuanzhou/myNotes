@@ -38,7 +38,7 @@ Thanks again for stopping by, and I hope these notes bring you some inspiration 
 
 ---
 
-If you have any questions or need assistance, please [contact me](mailto:your-email@example.com).
+If you have any questions or need assistance, please [contact me](mailto:baod142857@gmail.com).
 
 ---
 
